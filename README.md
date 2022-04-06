@@ -1,2 +1,2 @@
 # Informasjonsteknologi_1_GitHub
-RIP pumped bmx
+Trym er stygg (sjikane)
